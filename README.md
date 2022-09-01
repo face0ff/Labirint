@@ -1,1 +1,1 @@
-# Labirint
+# Labirint как то так!
